@@ -1,4 +1,4 @@
-#  
+#  Experience my avatar like never before with my avatar vip Scripts, the #1 Script. Includes infinite resources and no cooldown for unbeatable
 
 
 
